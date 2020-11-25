@@ -20,6 +20,10 @@
 > 10 Leute haben schon gevotet, aber bei uns werden alle Stimmen gezählt! Bitte wählen gehen! ;)
 > Aja, und weils auch vielleicht interessant ist: Unsere Covid-Strategie wird die gleiche wie beim letzten Mal sein: solange es legal möglich ist, werden wir fahren. Wenn es nicht geht, werden wir schauen, dass wir so viel wie möglich vom Apartment zurückbekommen. Sonstige Kosten haben ma ja zum Glück eh nicht 👍🏻
 
+### 17.11.2020
+
+> Hallihallo! Wir haben gesehen, dass du noch nicht auf maturarei.se/umfrage abgestimmt hast. Könntest du das bitte asap machen? Wenn es Wünsche/Anregungen/Fragen gibt, dann immer her damit!
+
 ## Links
 
 - [Umfrage](https://maturarei.se/umfrage)
