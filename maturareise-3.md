@@ -1,5 +1,9 @@
 # Maturareise 3
 
+## Infos
+
+Datum: 31.7.2020 - 7.8.2020
+
 ## Aussendungen
 
 ### 05.11.2020
