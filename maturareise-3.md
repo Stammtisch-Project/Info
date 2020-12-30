@@ -28,6 +28,28 @@ Datum: 31.7.2020 - 7.8.2020
 
 > Hallihallo! Wir haben gesehen, dass du noch nicht auf maturarei.se/umfrage abgestimmt hast. Könntest du das bitte asap machen? Wenn es Wünsche/Anregungen/Fragen gibt, dann immer her damit!
 
+### 16.12.2020
+
+> Liebe Leute, es ist so weit! Wir haben einen Favoriten gewählt, dieses Jahr in Italien.
+>
+> https://www.novasol.at/ferienhaeuser/italien/marken/ferienhaus-apecchio-imm400?adults=18&children=0&pets=0&from=20210731&to=20210807&dateSpecified=1
+>
+> Preismäßig wären es 170 Euro, wenn 18 Leute mitfahren. Die nächsten Nachbarn sind 2km entfernt, also werden wir sicher niemanden stören. Der Nachteil an dem Haus is halt, dass es 10 Stunden Fahrzeit sind. Was sagts ihr dazu, wollen wir das trotzdem nehmen?
+
+### 27.12.2020
+
+> Heyo Leute, wichtiges Announcement!
+>
+> Wir hätten ein Haus gefunden was wir gerne Buchen würden!
+>
+> Quick facts: Es ist in Italien, Apecchio, wunderbar abgelegen mit Pool und keine Nachbarn für 2km 😏
+>
+> Datumsmäßig ist es von 31.07 bis 07.08 und bei der Woche haben laut umfrage am meisten (18 Leute, wie geil!) Zeit. Anreise ist etwa 9 Stunden laut Google Maps (von Neustadt)
+>
+> Und jetzt das beste: Die Kosten liegen bei 166,06€ (insgesamt 2.989€)! Diese dann bitte auf mein Konto so bald wie möglich überweisen (IBAN ist in eigener Nachricht, Achtung, ich habe 2 Konten, bitte überprüfen ob es das richtige ist)
+
+> Wenn niemand etwas dagegen hat, werden wir morgen buchen! 🥳
+
 ## Links
 
 - [Umfrage](https://maturarei.se/umfrage)
