@@ -4,6 +4,12 @@
 
 Datum: 31.7.2020 - 7.8.2020
 
+Haus: [dieses](https://www.novasol.at/ferienhaeuser/italien/marken/ferienhaus-apecchio-imm400)
+
+Koordinaten: 43°32'01.6"N 12°28'58.0"E
+
+Adresse: Vocabolo Casaccia, 61042 Apecchio PU, Italien
+
 ## Aussendungen
 
 ### 05.11.2020
